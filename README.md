@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Valentino(19)
+- 👀 I’m interested in doing cool programming stuff
+- 🌱 I’m currently learning IT in a School
+- 😄 Pronouns: he/him
